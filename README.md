@@ -1,4 +1,4 @@
-Data and Results from this repository are published here: 
+Data and Results from this repository are published here (open access): 
 
 Dörr, Melanie; Denger, Julia; Maier, Céline S; Kirsch, Jana V; Manns, Hannah; Voolstra, Christian R
 
